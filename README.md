@@ -9,3 +9,14 @@ My first repository
 - Crash Landing on You
 - Reply 1988
 - Descendants of the Sun
+- Record of Youth
+- Backstreet Rookie
+- Vagabond
+- Inheritors
+- Itaewon Class
+- Twenty Five Twenty One
+- Sweet Home
+- It's Okay Not To Be Okay
+- Money Heist: Korea – Joint Economic Area
+- Vincenzo
+- Squid Game
